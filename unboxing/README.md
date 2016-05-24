@@ -1,2 +1,2 @@
 #Unboxing
-Writeup to follow; check ./images for now!
+Writeup to follow; check out the unboxing photos for now!
